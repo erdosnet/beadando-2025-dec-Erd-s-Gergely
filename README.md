@@ -1,0 +1,1 @@
+# beadando-2025-dec-Erd-s-Gergely
